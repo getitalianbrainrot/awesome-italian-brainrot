@@ -10,6 +10,8 @@ These funny creatures quickly spread all over the world in March 2025 – to Ame
 
 The first funny creature was called "Tralallar Tralala"! It was made in January 2025 by someone named Burger677 on TikTok. This was when people started making these goofy characters with funny Italian names.
 
+[Check out more details here](https://getitalianbrainrot.com)
+
 ## Characters Gallery
 
 Here's a collection of the most popular Italian Brainrot characters that have taken the internet by storm:
